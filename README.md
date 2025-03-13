@@ -1,0 +1,1 @@
+Cole o link do video do youtube que quer com Shif+Insert e então você recebera uma link que ao colar no google de deixara ver o video sem anuncios
